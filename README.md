@@ -1,4 +1,4 @@
-👋 Hi, I’m Oriol Bustos @oriol-bustos.
+👋 Hi, I’m Oriol Bustos (@oriol-bustos).
 
 LinkedIn: www.linkedin.com/in/oriol-bustos
 
